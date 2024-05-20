@@ -1,2 +1,1 @@
-Hello hi im chop chop cooop! wow
-so sad
+Hello I'm Seoyoung OH! wow
