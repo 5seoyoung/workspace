@@ -1,1 +1,1 @@
-Hello I'm Seoyoung OH! wow
+Hello I'm Seoyoung OH! wow!
