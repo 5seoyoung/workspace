@@ -7,3 +7,5 @@ I'm Seoyoung Oh, a student majoring in Big Data & AI at Kookmin University.
 🤔 Interests
 - Data Science and Analytics
 - Data Visualization
+
+Thank u
